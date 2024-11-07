@@ -1,1 +1,1 @@
-most of music came from library of ruina ost and limbus company, only 2 of the music from dm dokuro
+most of limbus company and library of ruina music are came from mili (ex - hero )
